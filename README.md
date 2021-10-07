@@ -1,6 +1,6 @@
-Pannenkoek voor 8 pannenkoeken
+Pannenkoek
 
-Recept:
+Recept voor 8 pannenkoeken:
 2 eiren
 250 gram bloem
 500 ml melk
